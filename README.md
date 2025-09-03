@@ -2,7 +2,7 @@
 
 # **Denis Gutsal**
 
-📧 [denisgutsalwork@gmail.com](mailto:denisgutsalwork@gmail.com) | 🌍 Remote | 🔗 [LinkedIn](www.linkedin.com/in/denis-gutsal-a1776a173) | 💻 [Telegram] https://t.me/denzellife
+📧 [denisgutsalwork@gmail.com](mailto:denisgutsalwork@gmail.com) | 🌍 Remote | 🔗 [LinkedIn](www.linkedin.com/in/denis-gutsal-a1776a173) | 💻 [Telegram](https://t.me/denzellife)
 
 ---
 
